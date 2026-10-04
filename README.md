@@ -1,1 +1,0 @@
-# IGTEA_DATABASE
